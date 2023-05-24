@@ -1,6 +1,5 @@
 # Vikram
 
-![image](https://github.com/Abdul-Rahman-26/Vikram/assets/113432797/bd5ac779-328e-4b74-990f-1b7768d9bd70)
 
 ![image](https://github.com/Abdul-Rahman-26/Vikram/assets/113432797/6e3709b5-5438-439d-9229-ec481117342e)
 
